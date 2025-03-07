@@ -3,6 +3,9 @@
 * Liên hệ học thử: 0962797946 (FaceTime, Zalo,...), [Facebook](https://www.facebook.com/trietptm) gần ngã ba Hồ Văn Huê - Nguyễn Kiệm, Phú Nhuận.
 https://goo.gl/maps/CghSicAvrM6nnYJ8A
 
+## 2024-2025:
+![image](https://github.com/user-attachments/assets/689f1cdc-de60-42fc-801a-20f3a7acf538)
+
 ## 2023-2024:
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/967715c5-4131-4d12-8a8c-cdcfb4d84a13)
 
