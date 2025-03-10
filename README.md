@@ -41,6 +41,8 @@ https://goo.gl/maps/CghSicAvrM6nnYJ8A
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/39d4d10f-a5af-4433-8467-d9dda4be202e)
 
 ## 2017-2018:
+![image](https://github.com/user-attachments/assets/50bb23b1-9c65-4599-b6c3-dfb66c678a73)
+
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/da18a239-419b-4acd-8f48-875c460557b0)
 
 ## 2016-2017:
