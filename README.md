@@ -104,6 +104,8 @@ https://goo.gl/maps/CghSicAvrM6nnYJ8A
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/9ebc749a-53ec-4d3a-a628-d9aa60abae3c)
 
 ## 2006-2007:
+![image](https://github.com/user-attachments/assets/281a16ff-3e39-41aa-9288-11f52bd8e689)
+
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/61548e3e-f4ee-487d-a2e7-db531c3cc8cc)
 
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/d46d3827-1d60-44c4-bcb0-4ff2da42f318)
